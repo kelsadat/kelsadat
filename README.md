@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @kelsadat
+- 
+- 👀 I’m interested in writing code in order to make money
+- 🌱 I’m currently learning python, javascript
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me: Join my whataspp group with invite link of https://chat.whatsapp.com/KvZKlVNMXGwJoJsExAV9kV
